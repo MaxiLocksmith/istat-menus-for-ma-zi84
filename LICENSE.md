@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://MaxiLocksmith.github.io/istat-menus-for-ma-zi84/ ) |
  |---------------------|----------------------:|
 
 
